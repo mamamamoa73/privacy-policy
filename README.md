@@ -1,5 +1,5 @@
 📄 Privacy Policy for [Gloss and GO]
-Effective Date: [Insert Date]
+Effective Date: [2/7/2025]
 
 [Gloss and GO ] ("we", "our", or "us") respects your privacy. This Privacy Policy explains how we collect, use, and protect your information.
 
